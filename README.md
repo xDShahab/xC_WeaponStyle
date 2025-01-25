@@ -1,6 +1,6 @@
 # xCoore Weapon Style 💙
 
-![Menu](http://url/to/Menu.png)
+![Menu](http://Menu.png)
 
 # Discord
 
