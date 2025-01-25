@@ -4,12 +4,10 @@
 
 # Discord
 
-- https://discord.gg/xcoore 🌐
+- https://discord.gg/Uwt4rudXMu 🌐
 
 # Web
 
 - https://shahabsanei.ir/ 🌐
 
 # Discord : `shahabxd` 💙
-
-# Open Resource Of Codem Notif 🙂
